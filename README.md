@@ -1,2 +1,2 @@
 # zomerExamenJava
-sussy wussy amonger imposter 
+Zomer Examen Java 2023
